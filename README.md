@@ -10,7 +10,7 @@ Social media ? let me keep my secret yeah!
 
 just that, im gonna leave now,thanks 🍃
 
-## Reference ✈️
+## Reference 🚀
 
 [Jump here for list of my notes](url)
 
