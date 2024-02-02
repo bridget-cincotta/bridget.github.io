@@ -12,6 +12,5 @@ just that, im gonna leave now,thanks 🍃
 
 ## Reference 🚀
 
-[Jump here for list of my notes]([url](https://bridget-cincotta.github.io/jump-list/)https://bridget-cincotta.github.io/jump-list/)
-
+[Jump here for list of my notes](https://bridget-cincotta.github.io/jump-list/)
 
